@@ -2,7 +2,7 @@
 ## A Complete Account of The Black, Its Properties, Its Dispersal, and the Obligation of the Lapidary of the Interior
 *Lapidary of the Interior — Foundational Series — Vol. I*
 *Classification: INTERIOR / UNRESTRICTED*
-*Last amended: [pending]*
+*Last amended: [non-linear — see archive notes]*
 
 ---
 
